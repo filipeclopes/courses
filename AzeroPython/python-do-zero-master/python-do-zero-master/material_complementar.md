@@ -1,0 +1,5 @@
+1. [keep talking - pink floyd](https://www.youtube.com/watch?v=HJ7zbzJZsjs)
+2. [Como configurar o atom](https://www.youtube.com/watch?v=5PuzBLeYrP8)
+3. [Usando o pdb](https://www.youtube.com/watch?v=7GnHDfV6KQ8)
+4. [Filme do monty Python da aula de strings](https://www.imdb.com/title/tt0079470/)
+5. [Vídeo legal pra descontrair](https://www.youtube.com/watch?v=3kjdrl6qjwY)
